@@ -42,4 +42,4 @@ Whenever changes are made, the “Last Updated” date will be updated according
 📬 Contact
 
 For questions or concerns about this policy, contact:
-your-email@example.com
+davidhunter123.dh@gmail.com
